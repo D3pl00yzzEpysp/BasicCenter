@@ -3,11 +3,11 @@
 
  Criador : Ninja
   
- Telegram : @NinjaOFC
+ Telegram : @ImTheNinja
 
- Whatsapp : (82)981690602
 
- SOU APENAS UM NOVATO
+
+
 #############################
 
 _ MODO DE USAR _
