@@ -1,12 +1,7 @@
 # BASIC CENTER
 #############################
 
- Criador : Ninja
-  
- Telegram : @ImTheNinja
-
-
-
+ Criador : EPYSP
 
 #############################
 
